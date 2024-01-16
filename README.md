@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SztywnyGitSzymon
 - 👀 I’m interested in byczys
-- 🌱 I’m currently learning español
+- 🌱 I’m currently learning español y reggaeton 
 - 💞️ I’m looking to collaborate on biology project
 - 📫 How to reach me: grande ojos
 - 😄 Pronouns: big/🐓
